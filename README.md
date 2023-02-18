@@ -1,3 +1,3 @@
-### Hi! I am Bigbosa and this is my GitHub page.👋
+### Hi! I am Hristo Kirilov and this is my GitHub page.👋
 
 
